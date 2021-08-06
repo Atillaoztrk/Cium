@@ -1,1 +1,1 @@
-# translated by pythonic
+Cium botjuk
